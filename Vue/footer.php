@@ -1,0 +1,1 @@
+<p>&copy;  NGNINLAPMENE &nbsp;BY &nbsp;UNIVERS BINAIRE&nbsp;</p>
